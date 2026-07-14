@@ -1,1 +1,1 @@
-WAindows 11 auto installation
+Windows 11 auto installation
